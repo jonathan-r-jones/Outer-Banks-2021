@@ -1,7 +1,10 @@
 ## What are you doing the last week of July, 2021?
 
-I would love for you to join me in the Outer Banks of North Carolina, a place I ahve visited 
+I would love for you to join me in the Outer Banks of North Carolina, a place I have visited 
 and loved many a summer.
+
+qq
+- Jonathan
 
 You can use the [editor on 
 GitHub](https://github.com/jonathan-r-jones/Outer-Banks-2021/edit/gh-pages/index.md) to 
