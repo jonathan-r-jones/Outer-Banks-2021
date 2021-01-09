@@ -5,7 +5,8 @@
 I would love for you to join me in the Outer Banks of North Carolina, a place I have visited 
 and loved many a summer.
 
-
+If you are unfamiliar with the amazing Outer Banks, you can find more information 
+[here](https://en.wikipedia.org/wiki/Outer_Banks).
 
 qq
 - Jonathan
