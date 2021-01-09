@@ -1,7 +1,11 @@
 ## What are you doing the last week of July, 2021?
 
+![](OBX-Love.jp)
+
 I would love for you to join me in the Outer Banks of North Carolina, a place I have visited 
 and loved many a summer.
+
+
 
 qq
 - Jonathan
