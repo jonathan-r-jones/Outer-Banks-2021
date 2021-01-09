@@ -1,12 +1,19 @@
 ## What are you doing the last week of July, 2021?
 
-You can use the [editor on GitHub](https://github.com/jonathan-r-jones/Outer-Banks-2021/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+I would love for you to join me in the Outer Banks of North Carolina, a place I ahve visited 
+and loved many a summer.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+You can use the [editor on 
+GitHub](https://github.com/jonathan-r-jones/Outer-Banks-2021/edit/gh-pages/index.md) to 
+maintain and preview the content for your website in Markdown files.
+
+Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) 
+to rebuild the pages in your site, from the content in your Markdown files.
 
 ### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes 
+conventions for
 
 ```markdown
 Syntax highlighted code block
