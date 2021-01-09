@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages qq
+## What are you doing the last week of July, 2021?
 
 You can use the [editor on GitHub](https://github.com/jonathan-r-jones/Outer-Banks-2021/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
