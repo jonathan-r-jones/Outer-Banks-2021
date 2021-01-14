@@ -2,8 +2,15 @@
 
 ![](OBX-Love.jpg)
 
-I would love for you to join me in the Outer Banks of North Carolina, a place I have visited 
-and loved many a summer.
+I don't know about you, but I don't see my friends or family nearly enough. So this beach 
+house idea is just an effort to get just a little more friends and family into our lives.
+
+Nags Head is the center of the action in the Outer Banks (OBX). So the plan is to rent a 
+beach house there. If there is a lot of interest we can rent a bigger house or perhaps even 
+more than one house.
+
+Well I would love for you to join me in the Outer Banks of North Carolina, a place I have 
+visited and loved many a summer.
 
 If you are unfamiliar with the amazing Outer Banks, you can find more information 
 [here](https://en.wikipedia.org/wiki/Outer_Banks).
