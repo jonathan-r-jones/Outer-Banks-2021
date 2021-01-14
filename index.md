@@ -1,9 +1,9 @@
-## What are you doing the last week of July, 2021?
+## I don't know about you, but I don't see my friends or family nearly enough. 
 
 ![](OBX-Love.jpg)
 
-I don't know about you, but I don't see my friends or family nearly enough. So this beach 
-house idea is just an effort to get just a little more friends and family into our lives.
+What are you doing the last week of July, 2021? So this beach house idea is just an effort to 
+get just a little more friends and family into our lives.
 
 Nags Head is the center of the action in the Outer Banks (OBX). So the plan is to rent a 
 beach house there. If there is a lot of interest we can rent a bigger house or perhaps even 
