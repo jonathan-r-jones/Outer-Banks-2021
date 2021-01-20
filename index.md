@@ -28,7 +28,7 @@ interest and preference requests that I receive. A deposit is required to guaran
 
 - **Date: July 24 - 31, 2021**
 - **Location: Nags Head, North Carolina**
-- **Cost: approximately $1,500 - $2,500 per room for the week, depending on the exact place 
+- **Cost: approximately $1,400 - $2,500 per room for the week, depending on the exact place 
 that is chosen** 
 - **Pets Allowed?: Depends on the chosen house rules** 
 - **Significant Other, Plus 1, Kids Allowed?: Absolutely**
