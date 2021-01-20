@@ -19,7 +19,8 @@ Here are a few of the options I have found that are currently available on AirBN
 - [Option 3. Not Cheap. Dune it Wright](https://www.airbnb.com/rooms/38949923?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609793722_RsG%2BEu3W21LblnwQ&guests=1).
 
 Of course we are not limited to these choices. These are some options. Ultimately the choice 
-probably is determined by the level of interest and preference requests that I receive.
+probably is determined by the level of interest and preference requests that I receive. A 
+deposit is required to guarantee a room(s).
 
 
 
