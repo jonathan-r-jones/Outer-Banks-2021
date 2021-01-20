@@ -12,15 +12,15 @@ If you are unfamiliar with the amazing Outer Banks, you can find more informatio
 
 Here are a few of the options I have found that are currently available on AirBNB.
 
-- [Option 1. Cheapest. JUST RENOVATED!](https://www.airbnb.com/rooms/34533054?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609794831_OPzQfmK5rWgJ4TV0&guests=1).
+- [Option 1. Cheapest. JUST RENOVATED!](https://www.airbnb.com/rooms/34533054?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609794831_OPzQfmK5rWgJ4TV0&guests=1)
 
-- [Option 2. Less Cheap. Sunrise Surprise](https://www.airbnb.com/rooms/29557121?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609794164_0MpG%2BXhSPdr9dELi&guests=1).
+- [Option 2. Less Cheap. Sunrise Surprise.](https://www.airbnb.com/rooms/29557121?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609794164_0MpG%2BXhSPdr9dELi&guests=1)
 
-- [Option 3. Not Cheap. Dune it Wright](https://www.airbnb.com/rooms/38949923?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609793722_RsG%2BEu3W21LblnwQ&guests=1).
+- [Option 3. Not Cheap. Dune it Wright.](https://www.airbnb.com/rooms/38949923?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609793722_RsG%2BEu3W21LblnwQ&guests=1)
 
-Of course we are not limited to these choices. These are some options. Ultimately the choice 
-probably is determined by the level of interest and preference requests that I receive. A 
-deposit is required to guarantee a room(s).
+Of course we are not limited to these choices. These are merely some options. I am happy to do 
+more research if necessary. Ultimately the choice is probably determined by the level of 
+interest and preference requests that I receive. A deposit is required to guarantee a room(s).
 
 
 
