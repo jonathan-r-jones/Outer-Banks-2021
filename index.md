@@ -32,7 +32,7 @@ deposit is required to guarantee a room(s).
 that is chosen** 
 - **Pets Allowed?: Depends on the chosen house rules** 
 - **Significant Other, Plus 1, Kids Allowed?: Absolutely**
-- **What about covid?: This is a non-profit exercise. Covid cancellations are possible, but 
+- **What about covid?: This is a non-profit adventure. Covid cancellations are possible, but 
 not expected.**
 
 
@@ -42,5 +42,6 @@ not expected.**
 
 
 
+Thanks for considering my beachy idea.
 
 -- Jonathan
