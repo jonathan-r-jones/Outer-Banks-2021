@@ -1,18 +1,12 @@
-## I don't know about you, but I don't see my friends or family nearly enough. Want to do 
-something about it?
+## I don't know about you, but I don't see my friends or family nearly enough. Want to do something about it?
 
 ![](OBX-Love.jpg)
 
 What are you doing the last week of July, 2021? The idea is to get just a little more friends 
-and family into our lives.
-
-Nags Head is the center of the action in the Outer Banks (OBX). So the plan is to rent a 
-beach house there or at least near there. If there is a lot of interest we can rent a bigger 
-house or perhaps even more than one house.
-
-Well I would love for you to join me in the Outer Banks of North Carolina, a place I have 
-visited and loved many a summer.
-
+and family into our lives. Nags Head is the center of the action in the Outer Banks (OBX). So 
+the plan is to rent a beach house there or at least near there. If there is a lot of interest 
+we can rent a bigger house or perhaps even more than one house. Well I would love for you to 
+join me in the Outer Banks of North Carolina, a place I have visited and loved many a summer. 
 If you are unfamiliar with the amazing Outer Banks, you can find more information 
 [here](https://en.wikipedia.org/wiki/Outer_Banks).
 
@@ -34,8 +28,9 @@ probably is determined by the level of interest and preference requests that I r
 - **Date: July 24 - 31, 2021**
 - **Location: Nags Head, North Carolina**
 - **Cost: approximately $1,500 - $2,500 per room for the week, depending on the exact place 
-that is chosen** -- **Pets Allowed?: Depends on the chosen house rules** 
-- **Significant Other or Plus 1 Allowed?: Absolutely**
+that is chosen** 
+-- **Pets Allowed?: Depends on the chosen house rules** 
+- **Significant Other, Plus 1, Kids Allowed?: Absolutely**
 - **What about covid?: This is a non-profit exercise. Covid cancellations are possible, but 
 not expected.**
 
