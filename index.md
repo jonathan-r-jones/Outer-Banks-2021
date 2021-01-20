@@ -2,8 +2,8 @@
 
 ![](OBX-Love.jpg)
 
-What are you doing the last week of July, 2021? So this beach house idea is just an 
-effort to get just a little more friends and family into our lives.
+What are you doing the last week of July, 2021? The idea is get just a little more friends and 
+family into our lives.
 
 Nags Head is the center of the action in the Outer Banks (OBX). So the plan is to rent a 
 beach house there. If there is a lot of interest we can rent a bigger house or perhaps even 
@@ -15,12 +15,34 @@ visited and loved many a summer.
 If you are unfamiliar with the amazing Outer Banks, you can find more information 
 [here](https://en.wikipedia.org/wiki/Outer_Banks).
 
+Here are a few of the options I have found that are currently available on AirBNB.
+
+- [Option 1. JUST RENOVATED!](https://www.airbnb.com/rooms/34533054?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609794831_OPzQfmK5rWgJ4TV0&guests=1).
+
+- [Option 2. Sunrise Surprise](https://www.airbnb.com/rooms/29557121?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609794164_0MpG%2BXhSPdr9dELi&guests=1).
+
+- [Option 3. Dune it Wright](https://www.airbnb.com/rooms/38949923?adults=14&check_in=2021-07-24&check_out=2021-07-31&source_impression_id=p3_1609793722_RsG%2BEu3W21LblnwQ&guests=1).
+
+Of course we are not limited to these choices. These are some options. Ultimately the choice 
+probably is determined by the level of interest that I receive.
+
+
 - **Date: July 24 - 31, 2021**
 - **Location: Nags Head, North Carolina**
-- **Cost: approximately $2,500 per room, depending on the exact place that is chosen**
+- **Cost: approximately $2,500 per room for the week, depending on the exact place that is 
+chosen**
+-- **Pets Allowed?: Depends on the chosen house rules**
+-- **Significant Other or Plus 1 Allowed?: Of course
+
+
+**Current Guest List:**
+
+- TBD
+
+
 
 qq
-- Jonathan
+-- Jonathan
 
 You can use the [editor on 
 GitHub](https://github.com/jonathan-r-jones/Outer-Banks-2021/edit/gh-pages/index.md) to 
