@@ -29,7 +29,7 @@ probably is determined by the level of interest and preference requests that I r
 - **Location: Nags Head, North Carolina**
 - **Cost: approximately $1,500 - $2,500 per room for the week, depending on the exact place 
 that is chosen** 
--- **Pets Allowed?: Depends on the chosen house rules** 
+- **Pets Allowed?: Depends on the chosen house rules** 
 - **Significant Other, Plus 1, Kids Allowed?: Absolutely**
 - **What about covid?: This is a non-profit exercise. Covid cancellations are possible, but 
 not expected.**
