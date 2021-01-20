@@ -15,9 +15,9 @@ visited and loved many a summer.
 If you are unfamiliar with the amazing Outer Banks, you can find more information 
 [here](https://en.wikipedia.org/wiki/Outer_Banks).
 
-**Date: July 24 - 31, 2021**
-**Location: Nags Head, North Carolina**
-**Cost: approximately $2,500 per room, depedning on the exact place that is chosen**
+- **Date: July 24 - 31, 2021**
+- **Location: Nags Head, North Carolina**
+- **Cost: approximately $2,500 per room, depending on the exact place that is chosen**
 
 qq
 - Jonathan
