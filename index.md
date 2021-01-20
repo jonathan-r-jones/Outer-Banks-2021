@@ -2,8 +2,8 @@
 
 ![](OBX-Love.jpg)
 
-What are you doing the last week of July, 2021? So this beach house idea is just an effort to 
-get just a little more friends and family into our lives.
+What are you doing the last week of July, 2021? So this beach house idea is just an 
+effort to get just a little more friends and family into our lives.
 
 Nags Head is the center of the action in the Outer Banks (OBX). So the plan is to rent a 
 beach house there. If there is a lot of interest we can rent a bigger house or perhaps even 
@@ -14,6 +14,9 @@ visited and loved many a summer.
 
 If you are unfamiliar with the amazing Outer Banks, you can find more information 
 [here](https://en.wikipedia.org/wiki/Outer_Banks).
+
+** Date: July 24 - 31, 2021 **
+** Location: Nags Head, North Carolina **
 
 qq
 - Jonathan
