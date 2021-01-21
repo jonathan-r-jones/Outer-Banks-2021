@@ -45,7 +45,6 @@ that is chosen** -- **Pets Allowed?: Depends on the chosen house rules**
 
 
 
-qq
 -- Jonathan
 
 You can use the [editor on 

@@ -31,7 +31,7 @@ interest and preference requests that I receive. A deposit is required to guaran
 - **Cost: approximately $1,400 - $2,500 per room for the week, depending on the exact place 
 that is chosen** 
 - **Pets Allowed?: Depends on the chosen house rules** 
-- **Significant Other, Plus 1, Kids Allowed?: Absolutely**
+- **Significant Other, Plus 1, Kids, Other Friends Allowed?: Absolutely**
 - **What about covid?: This is a non-profit adventure. Covid cancellations are possible, but 
 not expected.**
 
