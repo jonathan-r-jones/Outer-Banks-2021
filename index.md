@@ -36,7 +36,7 @@ that is chosen**
 not expected.**
 
 
-**Current Guest List:**
+## Current Guest List:
 
 - TBD
 
@@ -44,4 +44,4 @@ not expected.**
 
 Thanks for considering my beachy idea.
 
--- Jonathan, Jan-21-2021
+## -- Jonathan, Jan-21-2021
